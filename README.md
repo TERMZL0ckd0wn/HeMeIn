@@ -4,7 +4,7 @@ HeMeIn merupakan suatu produk yang membolehkan individu untuk mengukur ketinggia
 
 ## Penerangan Terperinci
 
-Produk ini boleh digunakan oleh guru dalam mata pelajaran pendidikan jasmani dan boleh digunakan oleh oleh seseorang individu dalam rutin harian untuk mengesan kesihatan.
+Produk ini boleh digunakan oleh guru dalam mata pelajaran pendidikan jasmani dan boleh digunakan oleh seseorang individu dalam rutin harian untuk mengesan kesihatan.
 
 
 **Senarai barangan elektrik :**
